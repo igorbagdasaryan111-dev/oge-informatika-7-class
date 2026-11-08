@@ -1,0 +1,1 @@
+# oge-informatika-7-class
